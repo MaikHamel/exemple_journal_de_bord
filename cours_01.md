@@ -4,12 +4,6 @@
 Vous ne vous rappelez plus comment créer le journal ou le modifier? [Ce tutoriel](https://youtu.be/lX3bpuLK_Sg) vous aide! 
 
 ## Pourquoi j'ai choisi l'intégration multimédia
-Expliquer en 5 à 10 lignes ce qui vous intéresse en TIM. Parlez de ce qui vous a fait choisir ce programme. Quel cours vous motive en particulier? Est-ce que vous avez déjà en tête un métier que vous aimeriez faire grâce à la formation? Insérez dans votre texte un mot en gras, un emoji et une liste à point. 
-
-
-
-
-
 
 Après avoir regardé la liste des cours et leurs description, tous les cours mintéressent dans le programme TIM. Cependant, ce qui ma fait choisir ce programme est : 
 - ma passion pour le dessin 
@@ -17,9 +11,6 @@ Après avoir regardé la liste des cours et leurs description, tous les cours mi
 
 
 Grâce a la formation, je veuix aller travailler dans le graphisme, l'illustration et le dessin de concept (personnages, etc). Tous les cours dans cette technique me motivent, mais le cours de communication graphiqueq et d'illustration numériques m'attirent plus. :smile:
-
-
-
 
 
 
