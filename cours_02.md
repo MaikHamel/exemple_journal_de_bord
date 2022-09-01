@@ -16,10 +16,9 @@ J'ai choisit cette oeuvre multimedia puisque lors de ma visite au planétarium, 
 Lors du spectecle, j'ai tellement été émerveillé que j'avais des frissons.
 
 ### [Geometry Dash](https://www.robtopgames.com/)
-Expliquer pourquoi vous avez choisi ce lien.  
-
-### Lien 4 
-Expliquer pourquoi vous avez choisi ce lien. 
+j'ai choisit ce jeu puisque cela fait 6 ans que j'y joue. Ce jeu est un jeu de plateforme et un jeu de rythme. Le but du jeu est de toucher l'ecran ou d'appuyer la barre espace pour faire sauter le cube pour qu'il puisse esquiver des obstacles. le jeu contient des musiques d'arriere plan' mais les obstacles suivent le rythme de la musique pour que le personnage suive le rythme lorqu'il daute.
+###  [Lofi House](https://www.youtube.com/watch?v=BEzSQBTNj1Q)
+J'ai choisit cette vidéo puisque j'aime bien ecouter de la musique electronique. La musique est acompagné dun visualiseur, qui bouge avec le rythme de la musique. Il y a aussi de plusieurs video de ville la nuit( quelqu'un qui se promène dans plusieurs ville et qui filme ses deplacements (walking tour)), ce qui complemente bien l'ambiance chill de la musique house. 
 
 ### Lien 5 
 Expliquer pourquoi vous avez choisi ce lien. 
