@@ -11,8 +11,8 @@ J'ai choisi cette oeuvre multimédia puisque j'y suis été cet été avec ma fa
 
 ### [continuum](https://www.youtube.com/watch?v=M7fOoNNnpp4)
 J'ai choisit cette oeuvre multimedia puisque lors de ma visite au planétarium, nous avons été voir ce spectacle. jai adoré cette oeure pour plusieurs raisons :
--les spectateurs spont assit sur des poufs puisque le plafond du dome au dessus des spectateurs est l'écran. 
--la facon dont les galaxies, planets et autres astres se dirigent vers nous.
+- les spectateurs sont assit sur des poufs puisque le plafond du dôme au dessus des spectateurs est l'écran. 
+- la facon dont les galaxies, planets et autres astres se dirigent vers nous.
 Lors du spectecle, j'ai tellement été émerveillé que j'avais des frissons.
 
 ### Lien 3 
