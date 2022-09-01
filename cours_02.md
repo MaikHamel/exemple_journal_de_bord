@@ -17,9 +17,10 @@ Lors du spectecle, j'ai tellement été émerveillé que j'avais des frissons.
 
 ### [Geometry Dash](https://www.robtopgames.com/)
 j'ai choisit ce jeu puisque cela fait 6 ans que j'y joue. Ce jeu est un jeu de plateforme et un jeu de rythme. Le but du jeu est de toucher l'ecran ou d'appuyer la barre espace pour faire sauter le cube pour qu'il puisse esquiver des obstacles. le jeu contient des musiques d'arriere plan' mais les obstacles suivent le rythme de la musique pour que le personnage suive le rythme lorqu'il daute.
+
 ###  [Lofi House](https://www.youtube.com/watch?v=BEzSQBTNj1Q)
 J'ai choisit cette vidéo puisque j'aime bien ecouter de la musique electronique. La musique est acompagné dun visualiseur, qui bouge avec le rythme de la musique. Il y a aussi de plusieurs video de ville la nuit( quelqu'un qui se promène dans plusieurs ville et qui filme ses deplacements (walking tour)), ce qui complemente bien l'ambiance chill de la musique house. 
 
-### Lien 5 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [Jardin de Lumière/Lanternes Chinoises](https://calendrier.espacepourlavie.ca/jardins-de-lumiere)
+J'ai choisit cette oeuvre multimédia puisque j'ai adoré ma visite pour voir les lanternes chinoises. Lorsqu'on se promene dans le jardin, la lumière produit par les lanternes  colorés,  illuminent le passage, ce qui rend l'expérience magique. Aussi,les lanternes sont acompagnés par de la musique en arrère plan et ils sont aussi acpompagnés par un décors similaire a un jardin chinois. (Le jardin de lumiere est très similaire aux lanternes chinoises, donc j'ai pris ce lien) 
 
