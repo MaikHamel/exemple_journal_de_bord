@@ -10,7 +10,7 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 J'ai choisi cette oeuvre multimédia puisque j'y suis été cet été avec ma famille et j'ai adoré mon expérience.l'utilisation de la foret comme canva pour les projections luymineuses était bien pensé puisque le message derrière le spectacle est de preserver la nature. Chaque stations lumineuses dans le trajet avaient leurs propre ambiance grâce à l'utilisation de lumieres, ce qui rendait l'expérience magique.
 
 ### [Continuum](https://www.youtube.com/watch?v=M7fOoNNnpp4)
-J'ai choisit cette oeuvre multimedia puisque lors de ma visite au planétarium, nous avons été voir ce spectacle. jai adoré cette oeure pour plusieurs raisons :
+J'ai choisit cette oeuvre multimedia puisque lors de ma visite au planétarium, nous avons été voir ce spectacle. jai adoré cette oeuvre pour plusieurs raisons :
 - les spectateurs sont assit sur des poufs puisque le plafond du dôme au dessus des spectateurs est l'écran. 
 - la facon dont les galaxies, planets et autres astres se dirigent vers nous.
 Lors du spectecle, j'ai tellement été émerveillé que j'avais des frissons.
