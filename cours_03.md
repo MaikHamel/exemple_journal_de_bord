@@ -3,7 +3,7 @@
 
 ### Présentation
 
-mon nom est Maik Hamel, j’ai 18 ans et j’aime beaucoup le dessin numérique, la raison pour laquelle je suis ici. J’adore écouter de la musique et faire de la musique lorsque j’ai du temps de libre. J’apprécie tous les genres musicaux, mais mes préférés sont la musique électronique et la musique classique. Pour finir, ma couleur préféré est le bleu et ma saison préféré est l’automne. 
+Mon nom est Maik Hamel, j’ai 18 ans et j’aime beaucoup le dessin numérique, la raison pour laquelle je suis ici. J’adore écouter de la musique et faire de la musique lorsque j’ai du temps de libre. J’apprécie tous les genres musicaux, mais mes préférés sont la musique électronique et la musique classique. Pour finir, ma couleur préféré est le bleu et ma saison préféré est l’automne. 
 
 Depuis que je suis tout petit, je voulais me diriger dans les domaines de la science, en chimie pour être plus précis. Cependant, tout avais change lorsque je m’étais remis en question mon future et pris conscience que ce n’était pas ce que je voulais faire. Au meme moment, je dessinais beaucoup sur mon iPad et je regardais beaucoup d’animations 2D. Ainsi après quelques réflexions, j’ai décide que je voulais me diriger dans les domaines du dessin numérique. 
 
