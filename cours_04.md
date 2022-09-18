@@ -3,17 +3,18 @@
 Choisissez des emplois qui pourraient vous intéresser. 
 
 ### Emploi 1 - Illustrateur
-L'illustrateur doit elaborer des concepts d'illustration, créer des esquisses et realiser des illustrations pour les livres, les magazines, les publicités, etc. Il travaille en studio of chez lui (s'il est travailleur autonome). Pour devenir illustrateur, il faut avoir une grande créativité et beaucoup d'imagination, être capable de dessiner numériquement (photoshop, illustrator, etc) et être polyvalent. Un point qui m'intéresse dans ce métier est le fait que je peus faire des illustrations avec mon style. Un point qui rend le métier moins intéressant est le fait que beaucoup de gens cherchent à devenir illustrateur, ce qui rend difficile pour quelqun avec moins d'expériences à être embauché par des grandes compagnies comme Ubisoft.
+L'illustrateur doit elaborer des concepts d'illustration, créer des esquisses et realiser des illustrations pour les livres, les magazines, les publicités, etc. Il travaille en studio ou chez lui (s'il est travailleur autonome). Pour devenir illustrateur, il faut avoir une grande créativité et beaucoup d'imagination, être capable de dessiner numériquement (photoshop, illustrator, etc) et être polyvalent. Un point qui m'intéresse dans ce métier est le fait que je peus faire des illustrations avec mon style. Un point qui rend le métier moins intéressant est le fait que beaucoup de gens cherchent à devenir illustrateur, ce qui rend difficile pour quelqun avec moins d'expérience à être embauché par des grandes compagnies comme Ubisoft.
 
-### Emploi 2 - 
+### Emploi 2 - Intégrateur multimédia
+ L'intégrateur multimédia doit assembler et intégrer les éléments de contenus  d'applications multimédias en ligne ou sur support et doit procéder au codage de l'interactivité. Il travaille majoritairement dans dans un studio. Pour devenir intégrateur multimédia, il faut posséder un esprit logique,être polyvalent, aimer travailler en équipe, être curieux, être créatif et être minutieux. Un point qui m'intéresse dans ce métier est le fait d'être polyvalent et non spécialisé dans un domaine spécifique. Un point qui rend le métier moins intéressant est que celui-ci est moins spécialisé dans l'illustration.
 
-### Emploi 3 - Identification
-4 à 5 lignes 
+### Emploi 3 - Animateur 3D
+L'animateur 3D doit modéliser certaines pièces et formes, préparer tous les éléments en vue de l'animation, ajouter des éléments et faire plusieurs retouches à toutes les étapes de l’animation et travailler en collaboration avec l’artiste 3D tout au long de la réalisation. Il travaille majoritairement en studio. Pour devenir animateur 3D, il faut être patient, minutieux, créatif, il faut avoir un bon esprit d'analyse, il faut avoir une bonne organisation de travail et il faut avoir un bon sens artistique. Un point qui m'intéresse dans ce métier est d'animer des personnage, objets ou autre choses pour un projet. Un point qui rend le métier moins intéressant est qu'il faut être patient et il m'arrive d'être impatient ou d'agir impulsivement.
 
-### Emploi 4 - Identification
-4 à 5 lignes
+### Emploi 4 - Monteur vidéo
+Le monteur vidéo doit visionner les rushes d’un tournage afin de trier les scènes exploitables, doit déterminer le début et la fin d’un plan et assemble les plans afin de construire un montage cohérent, il doit contrôler également la qualité de l’image et du son et peut rajouter des effets sonores et visuels en fonction des indications du réalisateur. Il travaille dans un studio ou chez lui (monteur vidéo d'un youtuber(travailleur autonome)). pour devenir monteur vidéo, il faut être créatif, avoir la capacité à écouter et à comprendre les demandes d'un cadreur ou d'un réalisateur et avoir une parfaite connaissance des logiciels de montage vidéo. Un point qui rend le métier intéressant est de pouvoir créer une video ou un film à partir de plusieurs petites vidéos. Un point qui rent le métier moins intéressant est que beaucoup de personnes veulent devenir monteur vidéo donc l'embauchement est plus difficile pour quelqun avec moins d'expérience.
 
-### Emploi 5 - Identification
-4 à 5 lignes
+### Emploi 5 - Créateur multimédia
+Le créateur multimédia doit planifier, organiser et superviser tous les aspects techniques du tournage, doit interpréter le scénario et diriger la mise en scène, participer au montage des scènes de tournage afin de sélectionner celles qui seront choisies pour la diffusion et doit gérer le processus de création du contenu. Il travaille majoritairement dans un studio. Pour devenir créateur multimédia, il faut être créatif, avoir de l'imagination, être dynamique, persévérant et avoir une bonne conaissance informatique. Un point qui rend le métier intéressant est de pouvoir créer des projets multimédia et faire partie de la création. Un point qui rend le métier moins intéressant est que celui-ci a beaucoup de responsabilités.
 
 
