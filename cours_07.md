@@ -20,3 +20,5 @@ Qu'est-ce qui pourrait être modifié dans cette oeuvre?
 J’ai adoré l’œuvre multimédia que nous avons été voir. J’ai toujours eu une attirance vers quelque chose (video, project, etc) qui mélange l’animation, les couleurs et la musique. A la fin de l’œuvre, j’étais tellement impressionné que j’étais muet. Ce que j’aime bien de l’œuvre est que tout fonctionne bien ensemble. Les couleurs, les animation et la musique se complémentaient, ce qui produisait des ambiances plaisantes. 
 
 Selon moi, la seule chose qui pourrait être amélioré, seulement parce qu’un autre élève m’a mentionné la défaut, est la précision des projecteurs et des détecteurs de mouvement. Lorsque je m’asseyais sur un banc et que je me retournait, les détecteurs pensaient que je bougeais rapidement, donc il y avait des animations qui se produisaient autour de moi en répétition. 
+
+mots: 376
